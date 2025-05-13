@@ -1,1 +1,0 @@
-# DSI-Wilayas-2022
